@@ -2,6 +2,6 @@
 </p>
 <h4 align="left">:comet: Best Scripts:</h4>
 Top 1:</p> Breaking Point | Credits Autofarm: 
-https://controlc.com/d67da5a1
+[Click Here](https://controlc.com/650eaac3)
 </p>
 Top 2:</p> ???
